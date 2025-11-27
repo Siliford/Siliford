@@ -25,5 +25,6 @@
 
 **𝕮𝖚𝖗𝖗𝖊𝖓𝖙 𝕴𝖓𝖙𝖊𝖗𝖊𝖘𝖙**  
 ✦ 𝕯𝖊𝖒𝖔𝖓𝖔𝖑𝖔𝖌𝖞
-![CC9759A6901E90EA05AB3C20AE5F300C](https://github.com/user-attachments/assets/bb385090-d013-44cd-acac-0a727d76d261)
+![995627AE238F02DE59D6061840FC47EE](https://github.com/user-attachments/assets/a59df183-280c-44e2-874b-ed9c8e31b4a5)
+
 ![9326C608E1649D304EFAF14192AEA010](https://github.com/user-attachments/assets/136c5420-9b3a-474b-89da-6943b765af06)
