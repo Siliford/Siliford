@@ -9,6 +9,8 @@ Horror games lover. Musicals enjoyer.
 I like chatting. W2I.
 
 If I don't reply right away — sleeping or AFK.
+<img width="1302" height="932" alt="d890dc879505ac293b08b3ecad8b0adf" src="https://github.com/user-attachments/assets/244a37fa-01fb-495a-9139-7f112231915a" />
+
 ![995627AE238F02DE59D6061840FC47EE](https://github.com/user-attachments/assets/a59df183-280c-44e2-874b-ed9c8e31b4a5)
 
 ![9326C608E1649D304EFAF14192AEA010](https://github.com/user-attachments/assets/136c5420-9b3a-474b-89da-6943b765af06)
