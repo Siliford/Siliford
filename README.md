@@ -1,29 +1,14 @@
-**𝕴𝖓𝖙𝖗𝖔𝖉𝖚𝖈𝖙𝖎𝖔𝖓**
+Call me **Sunguis** — or whatever, just don't make it offensive.
 
-**𝕸𝖆𝖎𝖓 𝕱𝖆𝖓𝖉𝖔𝖒**  
-✦ 𝕱𝖔𝖗𝖘𝖆𝖐𝖊𝖓
+I AFK a lot. **Don't copy my skin.**
 
-**𝕱𝖆𝖛𝖔𝖗𝖎𝖙𝖊 𝕮𝖍𝖆𝖗𝖆𝖈𝖙𝖊𝖗**  
-✦ 𝕰𝖑𝖑𝖎𝖔𝖙 𝖊𝖓𝖙𝖍𝖚𝖘𝖎𝖆𝖘𝖙
+I speak Chinese & English. I'll reply in English.
 
-**𝕻𝖗𝖎𝖒𝖆𝖗𝖞 𝕾𝖍𝖎𝖕𝖘**  
-✦ 𝕻𝖆𝖞𝖈𝖍𝖊𝖈𝖐/𝕻𝖎𝖟𝖟𝖆𝖉𝖊𝖇𝖙  
+Horror games lover. Musicals enjoyer.
 
-**𝕺𝖙𝖍𝖊𝖗 𝕱𝖆𝖛𝖔𝖗𝖎𝖙𝖊𝖘**  
-✦ 𝕮𝖍𝖆𝖗𝖆𝖈𝖙𝖊𝖗: 𝕬𝖟𝖚𝖗𝖊  
-✦ 𝕾𝖍𝖎𝖕: 𝕬𝖟𝖚𝖗𝖊𝖙𝖎𝖒𝖊  
-✦ 𝕺𝖙𝖍𝖊𝖗 𝖘𝖍𝖎𝖕𝖘: 𝕹𝖊𝖚𝖙𝖗𝖆𝖑
+I like chatting. W2I.
 
-**𝕮𝖚𝖗𝖗𝖊𝖓𝖙 𝕻𝖗𝖔𝖏𝖊𝖈𝖙**  
-✦ 𝕯𝖎𝖊𝖔𝖋𝖉𝖊𝖆𝖙𝖍 𝖋𝖆𝖓 𝖕𝖗𝖔𝖏𝖊𝖈𝖙  
-✦ 𝕾𝖙𝖆𝖙𝖚𝖘: 𝕹𝖔𝖓-𝖕𝖑𝖆𝖞𝖊𝖗
-
-**𝕾𝖊𝖈𝖔𝖓𝖉𝖆𝖗𝖞 𝕱𝖆𝖛𝖔𝖗𝖎𝖙𝖊𝖘**  
-✦ 𝕱𝖔𝖓𝖉 𝖔𝖋: 𝕬𝖗𝖙𝖋𝖚𝖑 & 𝕻𝖚𝖗𝖘𝖚𝖊𝖗  
-✦ 𝕾𝖍𝖎𝖕: 𝕬𝖗𝖙𝖋𝖚𝖑/𝕻𝖚𝖗𝖘𝖚𝖊𝖗
-
-**𝕮𝖚𝖗𝖗𝖊𝖓𝖙 𝕴𝖓𝖙𝖊𝖗𝖊𝖘𝖙**  
-✦ 𝕯𝖊𝖒𝖔𝖓𝖔𝖑𝖔𝖌𝖞
+If I don't reply right away — sleeping or AFK.
 ![995627AE238F02DE59D6061840FC47EE](https://github.com/user-attachments/assets/a59df183-280c-44e2-874b-ed9c8e31b4a5)
 
 ![9326C608E1649D304EFAF14192AEA010](https://github.com/user-attachments/assets/136c5420-9b3a-474b-89da-6943b765af06)
